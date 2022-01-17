@@ -1,6 +1,6 @@
 - ¯\_(ツ)_/¯ Hi, I’m @AdiWeeb
          xxxxxxx--xxxxxxx
-- ¯\_(ツ)_/¯ I’m interested in Coding/Anime/Games/tech
+- ¯\_(ツ)_/¯ I’m interested in Coding/Anime/Games/techx
          xxxxxxx--xxxxxxx
 - ¯\_(ツ)_/¯ I’m currently learning python/java/xml
          xxxxxxx--xxxxxxx
